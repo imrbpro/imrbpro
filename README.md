@@ -20,6 +20,8 @@
 - ⚡ Fun fact **I am a quick learner. 😊**
 
 <h3 align="left">Connect with me:</h3>
+📨 : muhammadrehanbaig@gmail.com
+📞 : +923460379925
 <p align="left">
 </p>
 
